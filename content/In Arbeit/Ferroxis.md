@@ -1,0 +1,1 @@
+Über lange Zeit ist das [[Kronfeld System]] mit nur zwei Planeten ausgekommen. 
