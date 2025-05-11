@@ -5,7 +5,7 @@ Auszug aus der Kronfeld-Satzung, gültig für alle auf Aschenheim arbeitenden We
 §2: Jede Person, die auf Aschenheim lebt, gibt außerhalb ihrer zugewiesenen Wohnung ihre Privatsphäre und Selbstbestimmung auf. Es ist den Anweisungen der Regulatoren stets Folge zu leisten und unter keinen Umstände sind diese in Frage zu stellen.
 §3: Jede Form von Magie, die nicht direkt oder indirekt zum Abbauen der Erze oder deren Weiterverarbeitung bei hilft, kann mit dem Tod durch Regulatoren bestraft werden.
 §4: Jeder Verstoß gegen die Kronfeld-Satzung wird mit einem Abzug von [[Karma]] punkten geahndet.
-test
+
 ## Leben und Leiden
 ### Alltag in den Minen
 ### Alltag in der Industriestadt
