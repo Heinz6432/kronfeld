@@ -1,1 +1,1 @@
-Über lange Zeit ist das [[Kronfeld System]] mit nur zwei Planeten ausgekommen. 
+Über lange Zeit ist das [[Kronfeld System]] mit nur zwei Planeten ausgekommen. Aber nach einiger Zeit stieg die Kriminalitätsrate, und zwar nicht nur auf [[Aschenheim]], sondern auch in [[Elysium]]. Das passte [[Ezekiel Kronfeld]] natürlich gar nicht ins Bild. Nachdem er sich mit seinen treuesten Beratenden Wesen getroffen hatte, kamen sie auf eine genial Idee.
